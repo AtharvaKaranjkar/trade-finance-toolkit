@@ -1,1 +1,1 @@
-Payment terms: Net 45 days
+Payment terms: Net 60 days
